@@ -1,4 +1,4 @@
-# Big Savings Alert! Grab 15% Off with Hammer Coupon "AVA" Today
+# Big Savings Alert! Grab 15% Off with Hammer Coupon CODE "AVA" Today
 <p align="center">
   <img src="https://res.cloudinary.com/dod2reyan/image/upload/v1741073723/Hammeronline_Coupon_Code_jykzsc.jpg" 
        alt="Image Description" 
